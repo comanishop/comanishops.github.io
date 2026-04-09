@@ -1,1 +1,1 @@
-# comanishops.github.io
+# comanishops.github.com
